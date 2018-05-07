@@ -1,1 +1,0 @@
-# Liyakhath A. Syed
